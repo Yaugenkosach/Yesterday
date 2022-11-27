@@ -1,2 +1,4 @@
 Yesterday,
-All my trobles seem so far away.
+All my troubles seemed so far away.
+Now it looks as though they're here to stay
+Oh i believe in yesterday
