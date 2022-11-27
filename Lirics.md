@@ -1,2 +1,2 @@
-Yesterday
-All my trobles seem so far away
+Yesterday,
+All my trobles seem so far away.
